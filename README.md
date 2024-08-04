@@ -1,1 +1,1 @@
-Our first Project
+Our first projects
